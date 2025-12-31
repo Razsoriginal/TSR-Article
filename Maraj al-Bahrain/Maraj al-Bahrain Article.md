@@ -126,7 +126,7 @@ And Imam Ali ibn Musa al-Ridha (a.s.) also confirmed this interpretation.
 
 ---
 
-### Tradition from Abu Dharr al-Ghifari (r.a.)
+### Tradition Narrated by Abu Dharr al-Ghifari (r.a.) from Imam Ali (a.s.)
 
 Ali ibn Muhammad ibn Makhlad narrates from Abu Dharr al-Ghifari (r.a.) regarding the Words of the Exalted:
 
@@ -138,9 +138,12 @@ He said: **"Amir al-Momineen Ali (a.s.) ibn Abu Talib (a.s.) and Fatima (a.s.)."
 
 He said: **"Al-Hasan (a.s.) and Al-Husayn (a.s.)."**
 
-Then Abu Dharr (r.a.) declared:
+Then Imam Ali (a.s.) declared: [^6]
 
 > **"So, who has been seen like these four? No one will love them except a Momin (believer), nor hate them except a Kafir (disbeliever). Therefore, be Momineen by the love of the People of the Household (a.s.), and do not be Kafirs by hatred of the People of the Household (a.s.), for you will be thrown into the Fire."**
+
+> **Arabic:**
+> فَمَنْ رَأَى مِثْلَ هَؤُلَاءِ الْأَرْبَعَةِ لَا يُحِبُّهُمْ إِلَّا مُؤْمِنٌ وَلَا يُبْغِضُهُمْ إِلَّا كَافِرٌ فَكُونُوا مُؤْمِنِينَ بِحُبِّ أَهْلِ الْبَيْتِ وَلَا تَكُونُوا كُفَّاراً بِبُغْضِ أَهْلِ الْبَيْتِ فَتُلْقَوْا فِي النَّارِ
 
 *Reference: Bihar al-Anwar, Allamah Majlisi, Volume 37, Page 55, The Book of History of Amir al-Momineen (a.s.), Chapter 50, Hadith 35* 
 
@@ -365,6 +368,9 @@ https://thaqalayn.net/quran/55
 [^5]: **The Holy Quran - The Final Testament, Juz 27** - Available at Al-Islam.org:  
 https://al-islam.org/printpdf/book/export/html/198462  
 (Page 71 contains the tradition of the Holy Prophet (s.a.w.a.) on Maraj al-Bahrain)
+
+[^6]: **Note on the Chain of Narration:** This tradition is narrated in *Tafsir Furat ibn Ibrahim* through Ali ibn Muhammad ibn Makhlad, who transmits from Abu Dharr al-Ghifari (r.a.). The concluding declaration ("So, who has been seen like these four...") is attributed to Imam Ali (a.s.) himself, as Abu Dharr is transmitting the words of Amir al-Momineen (a.s.). This is recorded in *Bihar al-Anwar*, Volume 37, Page 55, Hadith 35. The English translation is available at:  
+https://hubeali.com/books/English-Books/BiharAlAnwaar/BiharAlAnwaar_V37.pdf (Pages 54-56)
 
 ---
 
